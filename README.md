@@ -1,2 +1,2 @@
 # **FG-MUSIC 🎧**
-__Discord Server :__ discord.gg/
+__Discord Server :__ https://discord.gg/
